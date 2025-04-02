@@ -1,8 +1,6 @@
 # Xiaomi
 小米汽车车祸现场记录
 
-备份：https://vk.com/clip842534280_456239295?c=1
-
 0001：https://youtube.com/shorts/Kv7DzN7qOpc?si=2n69XxHT0UJQqusJ
 
 0002：https://youtube.com/shorts/mr4QCQXKe-0?si=HZlu5TIUWh3SimRP
