@@ -14,3 +14,5 @@
 0006：https://youtube.com/shorts/erwJhUvn0Q8?si=nRSGH8HbxkBima2P
 
 0007：https://youtube.com/shorts/L5w-PCiSNxg?si=dGkoXBkHgL1Sk7-7
+
+0008:https://youtube.com/shorts/TsKmtcllznM?si=62kXVg_whdL1ScD_
