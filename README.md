@@ -19,4 +19,4 @@
 
 0009: https://youtube.com/shorts/J2QxDCocGBQ?si=57ogbrDNfeu9QFJa
 
-0010： https://youtube.com/shorts/NORXMDXw96U?si=4b468VW8VDKUyGaR
+0010：https://youtube.com/shorts/NORXMDXw96U?si=4b468VW8VDKUyGaR
