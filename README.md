@@ -18,3 +18,5 @@
 0008: https://youtube.com/shorts/TsKmtcllznM?si=62kXVg_whdL1ScD_
 
 0009: https://youtube.com/shorts/J2QxDCocGBQ?si=57ogbrDNfeu9QFJa
+
+0010： https://youtube.com/shorts/NORXMDXw96U?si=4b468VW8VDKUyGaR
