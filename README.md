@@ -24,7 +24,7 @@
 小米汽车SU7安徽高速2025年3月29日三名女大学生死亡（大四前往考试路上）家属被删视频
 https://youtu.be/5mkav1VGJQ0?si=tqxKH0AsC2DFmuGx
 
-2025年四月徐闻县曲界小米SU7车祸致两名未成年鬼火少年死亡，菠萝的海。
+2025年四月徐闻县曲界小米SU7撞鬼火摩托，两名未成年少年死亡，菠萝的海。
 https://youtube.com/shorts/3ymv1exIPu8?si=fDh9cVnMQMSZzkMm
 
 0011:https://youtube.com/shorts/Vr0KVNpIg30?si=gAGTbLrqCic-Q58s
