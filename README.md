@@ -32,3 +32,5 @@ https://youtube.com/shorts/3ymv1exIPu8?si=fDh9cVnMQMSZzkMm
 0012:https://youtube.com/shorts/gC5WJoi4Bwc?si=XJO08t7uSWqDzGub
 
 0013:https://youtube.com/shorts/F9AAtRGvByI?si=pVIiQT0QFax5Zh7c
+
+0014:https://youtube.com/shorts/82xirRHoh90?si=fZpE7YlhVMOo13sj
