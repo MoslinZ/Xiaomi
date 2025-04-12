@@ -21,7 +21,7 @@
 
 0010：https://youtube.com/shorts/NORXMDXw96U?si=4b468VW8VDKUyGaR
 
-小米汽车SU7安徽高速2025年3月29日三名女大学生死亡（大四前往考试路上）家属被删视频
+小米汽车SU7安徽高速2025年3月29日三名女大学生死亡（大四前往考试路上）
 https://youtu.be/5mkav1VGJQ0?si=tqxKH0AsC2DFmuGx
 
 广东省湛江市徐闻县曲界镇发生车祸，一辆小米SU7撞人后着火，两名15岁少年死亡。SU7车主肇事逃逸，事发2025年4月5日。
