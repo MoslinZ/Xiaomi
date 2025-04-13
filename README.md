@@ -36,3 +36,7 @@ https://youtube.com/shorts/3ymv1exIPu8?si=fDh9cVnMQMSZzkMm
 0014:https://youtube.com/shorts/82xirRHoh90?si=fZpE7YlhVMOo13sj
 
 0015:https://youtube.com/shorts/hBPZEv8zhBA?si=3Qh5z7ByIsx6TEx8
+
+0016:https://youtube.com/shorts/FrHius8wVoM?si=mw9tOBuzHyuAZiOV
+
+0017:https://youtube.com/shorts/uH13oxzhyw8?si=ptbtKOTbYB7uIN_j
