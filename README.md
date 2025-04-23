@@ -40,3 +40,9 @@ https://youtube.com/shorts/3ymv1exIPu8?si=fDh9cVnMQMSZzkMm
 0016:https://youtube.com/shorts/FrHius8wVoM?si=mw9tOBuzHyuAZiOV
 
 0017:https://youtube.com/shorts/uH13oxzhyw8?si=ptbtKOTbYB7uIN_j
+
+0018:https://youtube.com/shorts/QWYqQzXrqjA?si=EEabQumNhcuG1irP
+
+0019:https://youtube.com/shorts/DMnWn0uxqgI?si=n-0uWx5zNM-OQQOz
+
+0020:https://youtube.com/shorts/eXWK98shmZo?si=27vp7reuKGxtnT7o
