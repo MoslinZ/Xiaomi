@@ -52,3 +52,15 @@ https://youtube.com/shorts/3ymv1exIPu8?si=fDh9cVnMQMSZzkMm
 0019:https://youtube.com/shorts/DMnWn0uxqgI?si=n-0uWx5zNM-OQQOz
 
 0020:https://youtube.com/shorts/eXWK98shmZo?si=27vp7reuKGxtnT7o
+
+0021:https://youtube.com/shorts/DMnWn0uxqgI?si=A3KuXgAei6Y6OZXB
+
+0022:https://youtube.com/shorts/tffadVPBwM0?si=KfrIU_9gQ9W_ddbt
+
+0023:https://youtube.com/shorts/ALt7UZd66VY?si=XDkbCNiHCuUiNL0P
+
+0024:https://youtube.com/shorts/FhDVKr5OdoM?si=nRR7w1cMCLx97XOp
+
+0025:https://youtube.com/shorts/JyjynXMWd2w?si=DqCkFgNHpnpoCi3K
+
+0026:https://youtube.com/shorts/QA-Ra5rkB5U?si=ZOW59ykO6BGooz7Z
