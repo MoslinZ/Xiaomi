@@ -28,7 +28,7 @@ https://dz.dzng.com/general/0/NEWS1477264WZYXIZHODVVWU
 0010：https://youtube.com/shorts/NORXMDXw96U?si=4b468VW8VDKUyGaR
 
 小米汽车SU7安徽高速2025年3月29日三名女大学生死亡（大四前往考试路上）
-https://www.hk01.com/%E5%8D%B3%E6%99%82%E4%B8%AD%E5%9C%8B/60225460/%E5%B0%8F%E7%B1%B3su7%E8%87%AA%E6%92%9E%E7%88%86%E7%87%833%E5%A5%B3%E5%A4%A7%E7%94%9F%E4%BA%A1-%E6%AD%BB%E8%80%85%E7%88%B6-%E5%A5%B3%E5%85%92%E5%92%8C%E5%90%8C%E5%AD%B8%E6%B4%BB%E6%B4%BB%E7%87%92%E6%AD%BB%E9%81%BA%E9%AB%94%E7%A2%B3%E5%8C%96
+https://youtu.be/AuoJA2gKoiw?si=MqCA82S2iQML7dB9
 
 广东省湛江市徐闻县曲界镇发生车祸，一辆小米SU7撞人后着火，两名15岁少年死亡。SU7车主肇事逃逸，事发2025年4月5日。
 https://youtube.com/shorts/3ymv1exIPu8?si=fDh9cVnMQMSZzkMm
