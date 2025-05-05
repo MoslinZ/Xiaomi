@@ -1,9 +1,9 @@
 # Xiaomi
 小米汽车车祸现场记录
 
-小米SU7/SU7ULRTA官方网站（删除智驾相关）的历史网页存档2025年4月7日
+小米SU7/SU7ULRTA官方网站（删除智驾相关）的历史网页存档2025年4月8日
 
-https://web.archive.org/web/20250404133406/https://www.xiaomiev.com/su7
+https://web.archive.org/web/20250408023025/https://www.xiaomiev.com/su7
 
 https://web.archive.org/web/20250408023131/https://www.xiaomiev.com/ultra
 
