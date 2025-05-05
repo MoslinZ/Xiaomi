@@ -1,6 +1,12 @@
 # Xiaomi
 小米汽车车祸现场记录
 
+小米SU7/SU7ULRTA官方网站（删除智驾相关）的历史网页存档2025年4月7日
+
+https://web.archive.org/web/20250406222943/https%3A%2F%2Fwww.mi.com%2Findex.html
+
+https://web.archive.org/web/20250406223011/https%3A%2F%2Fwww.xiaomiev.com%2Fultra
+
 海口市公安局交通警察支队@椰城交警 6月8日发布交通事故警情通报称，2024年6月7日7时35分许，一辆小轿车行驶出美苑路春江壹号小区门口时，与两辆电动车发生碰撞，造成1人当场死亡、3人不同程度受伤（其中1人住院治疗，无生命危险；2人无需住院已回家）。
 ![小米su7海南一死三伤](https://github.com/MoslinZ/Xiaomi/blob/main/2024%E5%B9%B46%E6%9C%887%E6%97%A5%E5%B0%8F%E7%B1%B3su7%E6%B5%B7%E5%8D%97%E4%B8%80%E6%AD%BB%E4%B8%89%E4%BC%A4.jpg)
 https://udn.com/news/story/7333/8017919
