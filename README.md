@@ -75,3 +75,11 @@ https://youtube.com/shorts/3ymv1exIPu8?si=fDh9cVnMQMSZzkMm
 0025:https://youtube.com/shorts/JyjynXMWd2w?si=DqCkFgNHpnpoCi3K
 
 0026:https://youtube.com/shorts/QA-Ra5rkB5U?si=ZOW59ykO6BGooz7Z
+
+0027:https://youtube.com/shorts/4ppOeyWcvRs?si=RP-NY90-7l40m_vS
+
+0028:https://youtu.be/lhfw2Jv7SnU?si=BDsDp79RSb5EAl6Y
+
+0029:https://youtube.com/shorts/7Ne_BnqO83c?si=8g7K7krxWhEBBjAq
+
+0030:https://youtube.com/shorts/7slr3jfsYHM?si=h0LhClrMovS13px3
