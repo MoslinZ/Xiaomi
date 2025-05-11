@@ -6,9 +6,6 @@
 
 1️⃣https://web.archive.org/web/20241219122456/https://www.xiaomiev.com/su7
 
-2️⃣https://web.archive.org/web/20250408023025/https://www.xiaomiev.com/su7
-
-1️⃣https://web.archive.org/web/20250408023131/https://www.xiaomiev.com/ultra
 
 2️⃣https://web.archive.org/web/20250303061148/https://www.xiaomiev.com/ultra
 ![小米汽车智驾改名](https://github.com/MoslinZ/Xiaomi/blob/main/Screenshot_20250505_180336_com.android.chrome.jpg)
