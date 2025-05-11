@@ -6,6 +6,7 @@
 
 1️⃣https://web.archive.org/web/20241215235506/https://www.xiaomiev.com/su7
 
+https://archive.org/download/su-7_20250511/SU7%20_%20%E5%B0%8F%E7%B1%B3%E6%B1%BD%E8%BD%A6.html
 
 2️⃣https://web.archive.org/web/20250303061148/https://www.xiaomiev.com/ultra
 ![小米汽车智能辅助驾驶](https://github.com/MoslinZ/Xiaomi/blob/main/SU7-%E5%B0%8F%E7%B1%B3%E6%B1%BD%E8%BD%A6.png)
