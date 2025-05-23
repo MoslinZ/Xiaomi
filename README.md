@@ -1,5 +1,10 @@
 # Xiaomi
-小米汽车车祸现场记录
+ARM官宣小米玄戒
+
+https://web.archive.org/web/20250522154201/https://newsroom.arm.com/blog/xiaomi-xring-o1-arm-silicon-launch
+
+Xiaomi’s New Silicon Powered by Arm Compute Platform Marks a 15-year Alliance Milestone
+# 小米汽车车祸现场记录
 
 小米SU7/SU7ULRTA官方网站的历史网页存档2025年4月8日
 小米官网及App订购页面，对SU7新车订购页面措辞进行了调整。其中，小米SU7标准版搭载的Xiaomi Pilot Pro，改名为“小米辅助驾驶Pro”，此前为“小米智驾Pro”。而小米SU7 Pro、小米SU7 Max搭载的Xiaomi HAD，改名为“小米端到端辅助驾驶”，此前为“小米智驾Max”。
