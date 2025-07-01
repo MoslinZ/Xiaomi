@@ -6,15 +6,6 @@ https://web.archive.org/web/20250522154201/https://newsroom.arm.com/blog/xiaomi-
 Xiaomi’s New Silicon Powered by Arm Compute Platform Marks a 15-year Alliance Milestone
 # 小米汽车车祸现场记录
 
-小米SU7/SU7ULRTA官方网站的历史网页存档2025年4月8日
-小米官网及App订购页面，对SU7新车订购页面措辞进行了调整。其中，小米SU7标准版搭载的Xiaomi Pilot Pro，改名为“小米辅助驾驶Pro”，此前为“小米智驾Pro”。而小米SU7 Pro、小米SU7 Max搭载的Xiaomi HAD，改名为“小米端到端辅助驾驶”，此前为“小米智驾Max”。
-
-1️⃣https://web.archive.org/web/20241215235506/https://www.xiaomiev.com/su7
-
-https://archive.org/download/su-7_20250511/SU7%20_%20%E5%B0%8F%E7%B1%B3%E6%B1%BD%E8%BD%A6.html
-
-2️⃣https://web.archive.org/web/20250303061148/https://www.xiaomiev.com/ultra
-
 海口市公安局交通警察支队@椰城交警 6月8日发布交通事故警情通报称，2024年6月7日7时35分许，一辆小轿车行驶出美苑路春江壹号小区门口时，与两辆电动车发生碰撞，造成1人当场死亡、3人不同程度受伤（其中1人住院治疗，无生命危险；2人无需住院已回家）。
 ![小米su7海南一死三伤](https://github.com/MoslinZ/Xiaomi/blob/main/2024%E5%B9%B46%E6%9C%887%E6%97%A5%E5%B0%8F%E7%B1%B3su7%E6%B5%B7%E5%8D%97%E4%B8%80%E6%AD%BB%E4%B8%89%E4%BC%A4.jpg)
 https://udn.com/news/story/7333/8017919
@@ -112,8 +103,18 @@ https://youtube.com/shorts/3ymv1exIPu8?si=fDh9cVnMQMSZzkMm
 
 0042:https://youtube.com/shorts/EFTe7-JrJ0o?si=H0j5Xliblf5Me94n
 
-![小米汽车智能辅助驾驶](https://github.com/MoslinZ/Xiaomi/blob/main/1746940487606.png)
-
 0043:https://youtube.com/shorts/a_YOcTkRlZg?si=z14K-1q_b6DdHxlQ
 
 0044:https://youtube.com/shorts/a_YOcTkRlZg?si=YV10tJQ92jpVN5b_
+
+
+# 小米SU7/SU7ULRTA官方网站的历史网页存档2025年4月8日
+小米官网及App订购页面，对SU7新车订购页面措辞进行了调整。其中，小米SU7标准版搭载的Xiaomi Pilot Pro，改名为“小米辅助驾驶Pro”，此前为“小米智驾Pro”。而小米SU7 Pro、小米SU7 Max搭载的Xiaomi HAD，改名为“小米端到端辅助驾驶”，此前为“小米智驾Max”。
+
+①https://web.archive.org/web/20241215235506/https://www.xiaomiev.com/su7
+
+https://archive.org/download/su-7_20250511/SU7%20_%20%E5%B0%8F%E7%B1%B3%E6%B1%BD%E8%BD%A6.html
+
+2️②https://web.archive.org/web/20250303061148/https://www.xiaomiev.com/ultra
+
+![小米汽车智能辅助驾驶](https://github.com/MoslinZ/Xiaomi/blob/main/1746940487606.png)
